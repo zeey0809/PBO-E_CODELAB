@@ -1,1 +1,1 @@
-Dilarang Keras Menggunakan Code Ini tanpa Seizin Dari Pemilik
+Dilarang Keras Menggunakan Code Ini tanpa Seizin Dari Pemilik !!!
